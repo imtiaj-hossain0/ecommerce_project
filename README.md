@@ -5,7 +5,7 @@ https://essexcricketshop.co.uk/
 https://luminaire.com/
 https://www.turkeymerck.com/
 https://barakahfiberbathtub.com/
-https://jidiamonds.com/
+
 https://stemsbrooklyn.com/
 https://globalproductbd.com/
 https://chambrayfashion.com/
